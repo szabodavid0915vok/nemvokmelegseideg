@@ -1,2 +1,0 @@
-# nemvokmelegseideg
-Hack kód
